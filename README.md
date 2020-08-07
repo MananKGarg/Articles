@@ -9,3 +9,19 @@
 
 * [The Concept of Envy](https://github.com/MananKGarg/Articles/blob/master/Difficulty%20of%20Being%20Good/The%20concept%20of%20Envy.md)
 * [Yudhishthira and the Dog](https://github.com/MananKGarg/Articles/blob/master/Difficulty%20of%20Being%20Good/Yudhishthira%20and%20the%20devoted%20dog.md)
+
+## Moby Dick
+
+
+
+## To Kill a Mockingbird
+
+
+
+## Made in Japan
+
+
+
+
+
+
