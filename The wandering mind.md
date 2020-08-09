@@ -1,0 +1,1 @@
+I watched a TEDx video that talked about focus. Most of it was the stuff I had already heard like how smartphones create addictive stimulations and how reducing dopamine hits could lead to better attention spans. But there was one thing that hit me real hard. The speaker says that we're doing so much that our mind does not wander anymore.
